@@ -1,2 +1,2 @@
 I want to kiss a Ben.
-I want to kiss a Mi.
+I want to kiss a Mi forever.
